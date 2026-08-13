@@ -1,2 +1,2 @@
 # IamTheKingOfThis
-Once a king always a king
+Once a king alwaysI want to do something for my nation
